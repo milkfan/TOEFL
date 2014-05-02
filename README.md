@@ -40,7 +40,7 @@ Moreover, many of our stresses nowadays are rooted in the fact we are continuous
 
 Stress is a prevalent problem in modern society. Spending time alone is our best weapon but what to do during that time may vary person to person. Only by knowing the roots of our stress and getting better understanding of ourselves can we be truly relaxed, which, inevitably, requires spending some time alone to look inside our inner world.
 
-----
+=====
 		
 ####让步语气的写法
 ` 前半句：`
