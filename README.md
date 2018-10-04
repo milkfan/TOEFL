@@ -39,7 +39,6 @@ Spending time alone can give people inner peace, which ultimately releases the s
 Moreover, many of our stresses nowadays are rooted in the fact we are continuously wired to the internet and to other people thanks to technologies like computers and mobile devices. In my experiences, online shopping appears to be a very time-consuming thus very stressful experience because I am offered so many choices that I don't know what to choose. Besides, I have read news report about teenagers madly checks their mobile phones at short intervals to see whether others have commented on their posts or in fear of missing out any group event. In cases like these, just as to cure a disease requires curing its root, to be truly stress-free is to be disconnected and spend time alone.
 
 Stress is a prevalent problem in modern society. Spending time alone is our best weapon but what to do during that time may vary person to person. Only by knowing the roots of our stress and getting better understanding of ourselves can we be truly relaxed, which, inevitably, requires spending some time alone to look inside our inner world.
-
 =====
 		
 #### 让步语气的写法
